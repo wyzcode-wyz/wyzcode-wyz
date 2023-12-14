@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Cloud Development And Devops Automation**
 
-- 📫 How to reach me **edesiri@wellingtoncloud.com**
+- 📫 How to reach me **dezwellington2@gmail.com.com**
 
 - 📄 Know about my experiences [www.linkedin.com/in/edesiri-wellington-ab772116b](www.linkedin.com/in/edesiri-wellington-ab772116b)
 
